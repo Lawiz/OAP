@@ -1,2 +1,2 @@
 # OAP   
-Sobolrv Petr 2 Kurs 7 gruppa
+Sobolev Petr Sergeevich / 2 Kurs 7 gruppa
